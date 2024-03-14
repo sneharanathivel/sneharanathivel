@@ -5,6 +5,6 @@
 📝Always eager to learn and share knowledge! 
 🔍I am looking forward for Intern opportunities. 
 🤝Let's collaborate and build something awesome together! 
-🔗Connect with me on LinkedIn [https://www.linkedin.com/in/sneha-r-21a0a928a] to stay updated.
-📧sneharanathivel@gmail.com
+🔗Connect with me on LinkedIn [https://www.linkedin.com/in/sneha-r-21a0a928a] 
+📧Email [sneharanathivel@gmail.com] to stay updated.
 🚀Happy coding! 
